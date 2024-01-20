@@ -1,0 +1,2 @@
+# webProject-2
+02.01.2024 2023–2024 EĞİTİM-ÖĞRETİM YILI GÜZ YARIYILI 2. ETKİNLİK (ÖDEVİ)
